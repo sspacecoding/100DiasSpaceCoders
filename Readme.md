@@ -8,7 +8,7 @@ Este desafio não é apenas sobre aprender; é sobre crescer juntos, superar obs
 
 Lembre-se, o sucesso nesta jornada vem não apenas do que aprendemos, mas também de como nos apoiamos e motivamos uns aos outros. Então, vamos compartilhar nossas experiências, nossos sucessos e, sim, até nossos desafios. Cada passo que damos é uma vitória rumo ao nosso objetivo final.
 
-Temos um [grupo no WhatsApp](https://chat.whatsapp.com/F32aZqVM4HWIa3yscW0KpJ) da nossa comunidade onde tu podes participar com a galera. Bora? Prepare-se, pois nossos próximos 100 dias serão de pura dedicação, aprendizado e, mais importante, de transformação.
+Temos um [grupo no WhatsApp](https://chat.whatsapp.com/CA8p0jhYrEJ1vYzmHA6kHB) da nossa comunidade onde tu podes participar com a galera. Bora? Prepare-se, pois nossos próximos 100 dias serão de pura dedicação, aprendizado e, mais importante, de transformação.
 
 ## 🖖 **Regras do Desafio #100DaysCode**
 
